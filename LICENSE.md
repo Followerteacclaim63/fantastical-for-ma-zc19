@@ -1,4 +1,4 @@
-#  
+#  Enhance Fantastical for macOS with best Fantastical for macOS Script | collaboration + custom themes, the #1 script. Includes collaboration and custom themes for a smoother
 
 
 
